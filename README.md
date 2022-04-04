@@ -1,1 +1,1 @@
-Visit https://www.codrut.pro to fund out about me!
+Visit: https://www.codrut.pro
